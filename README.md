@@ -1,7 +1,6 @@
 Chinh Danh NGUYEN
 Data Analyst
 
-(512) 817 – 6594 | chinhdanhnguyen@gmail.com | Austin, TX |
 
 SUMMARY
 
